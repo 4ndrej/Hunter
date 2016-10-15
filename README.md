@@ -27,4 +27,4 @@
 ### We have to be prepared.
 
 - - - -
-[Tree Trunk](https://www.richard-vanek.eu/2016/10/12/tree-trunk/) and [Sunflower field](https://www.richard-vanek.eu/2016/10/15/sunflower-field/) images are from my friend's inspirational website [Richard Vaned Photography](https://www.richard-vanek.eu/). Poor english is my own.
+[Tree Trunk](https://www.richard-vanek.eu/2016/10/12/tree-trunk/) and [Sunflower field](https://www.richard-vanek.eu/2016/10/15/sunflower-field/) images are from my friend's inspirational website [Richard Vanek Photography](https://www.richard-vanek.eu/). Poor english is my own.

@@ -1,6 +1,10 @@
 # The Hunter
 
-## The big mother is weak now. Fading. They say she could be sick. I really don't know. It sent us fewer beams yesterday. And today she have to fight with that dark cloud. We were scared.
+## The big mother is weak now. Fading. They say she could be sick. I really don't know. It sent us fewer beams yesterday. And today she have to fight with that dark cloud.
+
+## The Legend said this is just another cycle. The Legend. Only fool will trust an old legend.
+
+## We are scared.
 
 ![Tree trunk](https://www.richard-vanek.eu/wp-content/uploads/2016/10/2016-10-08-4773-e.web_.jpg)
 

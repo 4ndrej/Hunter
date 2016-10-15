@@ -6,5 +6,7 @@ The yellow god is weak now. Fading. They say she could be sick. It sent us few e
 
 The tribe is quiet now. Resting. Stuffed little beyond the limit. We have to prepare for the cold too.
 
+![Sunflower field](https://www.richard-vanek.eu/wp-content/uploads/2016/10/2016-10-08-4816-e.web_.jpg)
 
-Image is from my friend's website [Richard Vaned Photography](https://www.richard-vanek.eu/) ([Tree Trunk](https://www.richard-vanek.eu/2016/10/12/tree-trunk/)). Poor english is my own.
+
+Images are from my friend's website [Richard Vaned Photography](https://www.richard-vanek.eu/) ([Tree Trunk](https://www.richard-vanek.eu/2016/10/12/tree-trunk/) and [Sunflower field](https://www.richard-vanek.eu/2016/10/15/sunflower-field/)). Poor english is my own.

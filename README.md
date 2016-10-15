@@ -1,6 +1,6 @@
 # The Hunter
 
-### The big mother is weak now. Fading. They say she could be sick. I really don't know. It sent us fewer beams last week. And today she have to fight with that dark cloud. I hope it will get well soon.
+### The big mother is weak now. Fading. They say she could be sick. I really don't know. It sent us fewer beams last week. And today she have to fight with that dark cloud. I hope she will get well soon.
 
 ### The legend said this is normal. Just another cycle like thousand times before. The Legend. Only fool will trust an old legend.
 

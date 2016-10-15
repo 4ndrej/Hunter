@@ -6,7 +6,7 @@
 
 ### We are scared.
 
-![Tree trunk](https://www.richard-vanek.eu/wp-content/uploads/2016/10/2016-10-08-4773-e.web_.jpg)
+![Tree trunk](https://www.richard-vanek.eu/wp-content/uploads/2016/10/2016-10-08-4773-e.web_.jpg "Tree trunk")
 
 ### I was lucky today.
 
@@ -18,7 +18,7 @@
 
 ### Then came my sisters. We scattered the fool over the ground.
 
-![Sunflower field](https://www.richard-vanek.eu/wp-content/uploads/2016/10/2016-10-08-4816-e.web_.jpg)
+![Sunflower field](https://www.richard-vanek.eu/wp-content/uploads/2016/10/2016-10-08-4816-e.web_.jpg "Sunflower field")
 
 ### The tribe is quiet now. Resting. We have to wait. Within few days we will be stuffed up to the limit.
 
@@ -26,4 +26,5 @@
 
 ### We have to be prepared.
 
+- - - -
 [Tree Trunk](https://www.richard-vanek.eu/2016/10/12/tree-trunk/) and [Sunflower field](https://www.richard-vanek.eu/2016/10/15/sunflower-field/) images are from my friend's inspirational website [Richard Vaned Photography](https://www.richard-vanek.eu/). Poor english is my own.

@@ -14,14 +14,16 @@
 
 ### He realised the threat too late. Runs really fast, but I am the fastest here. Except the wind of course.
 
-### Screaming is useless here.
+### Screaming was useless here.
 
 ### Then came my sisters. We scattered the fool over the ground.
 
 ![Sunflower field](https://www.richard-vanek.eu/wp-content/uploads/2016/10/2016-10-08-4816-e.web_.jpg)
 
-### The tribe is quiet now. Resting. We have to wait now. Within few days we will be stuffed up to the limit.
+### The tribe is quiet now. Resting. We have to wait. Within few days we will be stuffed up to the limit.
 
-### The cold is scary. We have to be prepared.
+### The cold is scary.
+
+### We have to be prepared.
 
 [Tree Trunk](https://www.richard-vanek.eu/2016/10/12/tree-trunk/) and [Sunflower field](https://www.richard-vanek.eu/2016/10/15/sunflower-field/) images are from my friend's inspirational website [Richard Vaned Photography](https://www.richard-vanek.eu/). Poor english is my own.

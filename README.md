@@ -10,7 +10,7 @@
 
 ### I was lucky today.
 
-### That silly tree crossed the grass and wandered deep into our ground. Maybe he was looking for the food too. With so little leaves he must be starving. Maybe insane.
+### That silly tree crossed the grass and wandered deep into our ground. Maybe he was looking for the food too. With so few leaves he must be starving. Maybe insane.
 
 ### He realised the threat too late. Runs really fast, but I am the fastest here. Except the wind of course.
 
